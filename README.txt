@@ -16,4 +16,7 @@ verbatim via copy and paste.
 
 Hit ENTER and you should be good to go! 
 
+
 INFEST THE ENTIRE UNIVERSE!!!!
+
+Find more games at (https://www.patreon.com/cw/ZellyCreates OR https://zellybeanwizard.itch.io/)
